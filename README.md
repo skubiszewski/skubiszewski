@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @skubiszewski
+- 👀 I’m from Poland
+- 🌱 I’m working in Credit Agricole Bank Polska S.A.
+- 📫 You can reach me by e-mail: skubiszewski@credit-agricole.pl
